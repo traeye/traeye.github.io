@@ -11,7 +11,7 @@ p2520544[at]mpu.edu.mo
 
 #### Education
 Attended high school at GuangZhou No.5 Middle School 2022-2025.\
-Bachelor's degree is Macao Polytechnic University 2025-2029.\
+Bachelor's degree is Macao Polytechnic University 2025-2029.
 
 #### Interest
 Music: HipHop, Classical, Pop.\
